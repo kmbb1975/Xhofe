@@ -1,41 +1,4 @@
-1. 赵心童夺得斯诺克世锦赛冠军，成为中国首位，也是亚洲首位斯诺克世锦赛冠军，如何评价他的比赛表现？ [:link:](https://www.zhihu.com/question/1902560709012878096)
-2. 2025 五一档票房 7.43 亿，不及去年同档期票房一半，这一现象原因是什么？ [:link:](https://www.zhihu.com/question/1902835234510214480)
-3. 南京明孝陵石兽遭涂鸦「到此一游」，景区称已进行修补保护，涉事游客可能出于什么心理？将受到哪些处罚？ [:link:](https://www.zhihu.com/question/1902762657548821705)
-4. 孩子幼儿园，早上起不来，是该强行拖起来，还是让她睡够了再去幼儿园？ [:link:](https://www.zhihu.com/question/13172991603)
-5. SpaceX 星舰S35火箭在静态点火测试中发生爆炸，爆炸原因有哪些？ [:link:](https://www.zhihu.com/question/1902415262592004400)
-6. 如何看待阿维塔再回应网传「风阻系数造假」，称近期将根据国家专业机构实验室排期公开测试？ [:link:](https://www.zhihu.com/question/1902316343816074282)
-7. 诚心发问为什么大家都在说《死神》的时髦值很高？ [:link:](https://www.zhihu.com/question/664449191)
-8. 阿诺德将在赛季结束后离开利物浦加盟皇家马德里，如何评价这一举措？ [:link:](https://www.zhihu.com/question/1902785483890755051)
-9. 我是行政，老板说不招保洁了，让我一个月打扫一次厕所和会议室，给我涨工资500元，我怎么回？ [:link:](https://www.zhihu.com/question/1902315003505270826)
-10. 五一假期结束了，如果真有「反方向的钟」，你最想把时间拨回到假期的哪一天？ [:link:](https://www.zhihu.com/question/1902677957484443611)
 <details>
-<summary>11 ~ 20</summary>
-
-11. 哪道菜一出现就知道是妈妈的「敷衍式做饭」？ [:link:](https://www.zhihu.com/question/1899914369975957373)
-12. 小米汽车将 SU7 新车定购页面中的「智驾」更名为「辅助驾驶」，这一调整是出于怎样的品牌定位考量？ [:link:](https://www.zhihu.com/question/1902406018308211718)
-13. DND世界观下巨龙靠什么能活到成年? [:link:](https://www.zhihu.com/question/11292701270)
-14. 你在热血传奇里面打到的最贵的东西是什么？ [:link:](https://www.zhihu.com/question/33399354)
-15. 孩子明明天天都在学习，可咋就不出成绩呢？ [:link:](https://www.zhihu.com/question/1898247330764919030)
-16. 学校为什么喜欢把食堂、宿舍等职能单位外包出去呢？ [:link:](https://www.zhihu.com/question/1899419117401929649)
-17. 日本的小学生上学、放学为什么不可以接送？ [:link:](https://www.zhihu.com/question/5900994708)
-18. 美国男子注射蛇毒 18 年血液产生抗体，蛇毒在血液中是怎么产生抗体的？他的抗体有哪些研究价值？ [:link:](https://www.zhihu.com/question/1902414257561232264)
-19. 5月是2025年牛市的起点吗？ [:link:](https://www.zhihu.com/question/1898639747859079484)
-20. 巴菲特宣布年底退休，63 岁阿贝尔将接班，公司已囤积 3477 亿美元现金，哪些信息值得关注？ [:link:](https://www.zhihu.com/question/1902313765539668566)
-</details>
-<details>
-<summary>21 ~ 30</summary>
-
-21. 上班通勤在多久内可以接受啊？ [:link:](https://www.zhihu.com/question/12996127786)
-22. 贵州游船侧翻致 10 死，当地称日常有执法检查，曾发天气预警，为何悲剧仍发生？暴露了哪些问题？ [:link:](https://www.zhihu.com/question/1902679450086237352)
-23. 湖北江陵一男子跑马拉松心脏骤停，30 秒急救捡回一命，反映出什么问题？普通人怎么判断身体条件是否合适？ [:link:](https://www.zhihu.com/question/1902078766752170336)
-24. 24-25赛季，西部季后赛次轮森林狼VS勇士，你更看好哪队赢得系列赛？ [:link:](https://www.zhihu.com/question/1902681272041595428)
-25. 孩子写作业不会，你教也听不懂，你会说孩子笨吗？ [:link:](https://www.zhihu.com/question/1900219572537258288)
-26. 贵州黔西游船侧翻事故现场游客发声，突遇暴雨加冰雹，一些人没穿救生衣，涉事景区应承担哪些法律责任？ [:link:](https://www.zhihu.com/question/1902489527680989144)
-27. 为什么开了这么多会，却依然提升不了员工的激情？ [:link:](https://www.zhihu.com/question/653951784)
-28. 如果《崩坏：星穹铁道》开拓者小灰毛、星穹列车一行人去 Fate 型月世界打圣杯战争会怎样？ [:link:](https://www.zhihu.com/question/1902155541649793086)
-29. 2025赛季F1迈阿密大奖赛，迈凯伦优势巨大1-2带回，法拉利7-8完赛，如何评价本场比赛？ [:link:](https://www.zhihu.com/question/1902623098211116624)
-30. 在《遮天》三部曲中，有哪些绝世天才？ [:link:](https://www.zhihu.com/question/541593177)
-</details><details>
 <summary>bilibili</summary>
 
 </details>
